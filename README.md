@@ -1,0 +1,2 @@
+# begnning
+work alone！
